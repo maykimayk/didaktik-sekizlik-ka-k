@@ -1,0 +1,1 @@
+# didaktik-sekizlik-ka-k
